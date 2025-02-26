@@ -136,4 +136,4 @@ It’s not just a system. It’s your space.
 
 The **Mind Palace is different**. It isn’t just **a memory aid**, it’s **a dynamic and evolving space** where knowledge becomes **a lived experience**. It taps into **spatial reasoning, multi-sensory cues, and narrative memory**, making recall feel **effortless and intuitive**.
 
-The **future of learning isn’t just consuming information—it’s experiencing it**. 🚀
+The **future of learning isn’t just consuming information—it’s experiencing it**.
